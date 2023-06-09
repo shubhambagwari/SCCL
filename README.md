@@ -17,6 +17,8 @@
     Baidu：https://pan.baidu.com/s/19JENFU19r-KZx3poxPfzHQ
 
     mask： 6lv2
+    
+    Google drive link: https://drive.google.com/file/d/1QNaCWVPWpNuZElsCJ8thHgDRk6a85uU4/view?usp=sharing
 
 
 
